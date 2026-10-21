@@ -1,1 +1,5 @@
-# alfaomegamyrrrrt.github.io
+# AlfaOmega
+
+Сайт AlfaOmega о продюсировании, упаковке и запуске проектов. Контакт: Telegram — https://t.me/kenelmoder.
+
+Калькулятор дохода сохранён в обезличенном формате.
